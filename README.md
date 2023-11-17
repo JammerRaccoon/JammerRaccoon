@@ -3,6 +3,8 @@ Hello!! I'm Jammer! ^_^
 Made this for my Pony Town, if you see me in game feel free to say hi !! I'm looking to make friends so please chat with me lol :)
 I give out my discord (if it's not already on my pony) if you'd like to add me
 
+Please make a comment on my guestbook if you'd like! :D I read them!
+
 I'm 17! I don't feel comfortable talking to those under 16, so if I find out you're under that I'll block and unadd you!
 
 I love persona, spongebob, oneyplays, animal jam, disney world/land + rides, cartoon network and nicktoons + adult swim and a lot more lol :P You'll most definitely learn more about my interest when we get to talking!
