@@ -5,7 +5,7 @@ Hello!! I'm Jammer! ^_^
 Made this for my Pony Town, if you see me in game feel free to say hi !! I'm looking to make friends so please chat with me lol :)
 I give out my discord (if it's not already on my pony) if you'd like to add me
 
-Please make a comment on my guestbook if you'd like! :D I read them!
+Leave something on my StrawPage if you'd like! :D I read them!
 
 I'm 18! I don't feel comfortable talking to those under 17, so if I find out you're under that I'll block and unadd you!
 
