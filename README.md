@@ -7,7 +7,7 @@ I give out my discord (if it's not already on my pony) if you'd like to add me
 
 Leave something on my StrawPage if you'd like! :D I read them!
 
-I'm 18! I don't feel comfortable talking to those under 17, so if I find out you're under that I'll block and unadd you!
+I'm 19! I don't feel comfortable talking to those under 18, so if I find out you're under that I'll block and unadd you!
 
 I love persona, spongebob, oneyplays, animal jam, disney world/land + rides, cartoon network and nicktoons + adult swim and a lot more lol :P You'll most definitely learn more about my interest when we get to talking!
 
