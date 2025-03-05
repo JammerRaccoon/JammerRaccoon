@@ -3,8 +3,9 @@ Hello!! I'm Jammer! ^_^
 <img src="https://64.media.tumblr.com/0c91ad93e59c937b18cb4d9ef5d79001/0848c3a94e9d26fc-c9/s400x600/356acd59d42241646cb549201adb02ce73e83b74.gifv">
 
 Made this for my Pony Town, if you see me in game feel free to say hi !! I'm looking to make friends so please chat with me lol :)
-I give out my discord (if it's not already on my pony) if you'd like to add me
-I'm usually almost all the time offtab, I sit and play when I have nothing going on at my slow office job! Don't be afraid to whisper me, I might be a bit slow to type back since I'm either AFK or working :P
+I give out my discord (if it's not already on my pony) if you'd like to add me.
+
+***I'm usually almost all the time offtab, I sit and play when I have nothing going on at my slow office job! Don't be afraid to whisper me, I might be a bit slow to type back since I'm either AFK or working :P***
 
 Leave something on my StrawPage if you'd like! :D I read them!
 
