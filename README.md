@@ -4,6 +4,7 @@ Hello!! I'm Jammer! ^_^
 
 Made this for my Pony Town, if you see me in game feel free to say hi !! I'm looking to make friends so please chat with me lol :)
 I give out my discord (if it's not already on my pony) if you'd like to add me
+I'm usually almost all the time offtab, I sit and play when I have nothing going on at my slow office job! Don't be afraid to whisper me, I might be a bit slow to type back since I'm either AFK or working :P
 
 Leave something on my StrawPage if you'd like! :D I read them!
 
