@@ -7,7 +7,7 @@ I give out my discord (if it's not already on my pony) if you'd like to add me.
 
 ***I'm usually almost all the time offtab, I sit and play when I have nothing going on at my slow office job! Don't be afraid to whisper me, I might be a bit slow to type back since I'm either AFK or working :P***
 
-Leave something on my StrawPage if you'd like! :D I read them! (Straw temp down for now.. leave something on guestbook for now ^-^)
+Leave something on my StrawPage if you'd like! :D I read them!
 
 I'm 19! I don't feel comfortable talking to those under 18, so if I find out you're under that I'll block and unadd you!
 
