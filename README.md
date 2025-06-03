@@ -8,9 +8,12 @@
 <p align="center"><img src="https://64.media.tumblr.com/ce1e592c7bdaa6e606f76cb9bc338769/8d9b584baf1e8d32-f2/s2048x3072/5d9db5a99f916c2d0dca7fa36f2f5f5b08bc0e3f.pnj" width="200" height="30">
 <p align="center"> <img src="https://64.media.tumblr.com/a06d036d026497bdc3c50cd180540ab1/c24f8aa83ab6df7a-3a/s75x75_c1/599354cb94d09c851553ef8f2dd7ed8578feaadd.gifv"> <img src="https://64.media.tumblr.com/d4dbde941dc6308c974a0d01ecb16a1b/c2cbf4c21e8cdab2-18/s250x400/a80402b8e9a3c9f62cf76a1e76136e9ee3232a7a.pnj" width="100" height="50"> <img src="https://64.media.tumblr.com/5c5dccd216bd957fae8350c3db002540/c87adbf042de6f9b-e3/s250x400/65b284ce30e2408f18366454936e7efef321485d.gifv" width="50" height="50">
 <p align="center"> PROSHIPPERS, TCC, LOLICONS/SHOTACONS, EXTREME WEIRDOS AND THE VIOLENT WHATEVER YOU ARE, GO AWAY! Super sick in the head Postal fans who take the themes of the game way too far and idolize the topics that it touches upon.
-
+  <div><p align="center">Thanks. . . 
 <div></div>
-<p align="center">Thanks. . . 
+<p align="center"><img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" width="50" height="50">
+<div></div>(BYI FOR POSTAL FANS: I ship dudecest, doecest along with dudedoe.. if that makes you uncomfortable feel free to unadd/block me!)
+<div><p align="center">Thank you!
+
 <p align="center"><img src="https://64.media.tumblr.com/4dd59d4f36b6ca73c7bba40cb9ae0d56/043b9f9d8b88d465-f4/s1280x1920/f895dea9062c99027e2127282194d986347c5d58.pnj" width="250" height="5">
 <div></div>
 <p align="center"><img src="https://64.media.tumblr.com/c4aa5cc33d1e6adbdd8652a80ef3159c/8d9b584baf1e8d32-4c/s100x200/84923ee56214b730e04d074671d7521f5c45034c.pnj"><img src="https://64.media.tumblr.com/946b92598950c6c41d67f536b0359b9f/fafd01a240b68cd0-7a/s640x960/e7d3c3ab27330502465fbdc4a7cdcd4560536dfc.pnj" width="100" height="55"><img src="https://64.media.tumblr.com/cfdddf31cffe3f11af342f8ee5a8e0db/579e90ecc4d9aabc-49/s250x400/b51539a30f497230b2a4115c8a60e4d03a3bc731.pnj" width="100" height="55"><img src="https://64.media.tumblr.com/3fdb2eb80a13122e86a3b83d2e44aecb/a99305fc354b6993-b5/s100x200/1d2715db3008addfa14a6a23e82c36192a8651e0.pnj" width="100" height="55"><img src="https://64.media.tumblr.com/85d3a67830e3023bf7379722b3f91bca/a2c97ddde31701ee-ad/s250x400/3205a4cf8d7358ca62a6dc7646ded77fca3b986d.pnj" width="100" height="55"><img src="https://64.media.tumblr.com/e84dc13b0bee2f4dc36db5d37fb248f2/ec04d6544ba41c6a-d4/s2048x3072/d9de1bb2f5e53c1993d41402f374bafc9f6a3888.gifv" width="100" height="55"><img src="https://64.media.tumblr.com/c8d0be9fb381b30c4ba3b23748b4747e/ba16d020129a2a85-75/s100x200/d307b6f76d3b849184e96ef80d9a69f8522bbc63.gifv" width="100" height="55">
