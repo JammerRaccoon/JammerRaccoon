@@ -1,6 +1,7 @@
 <p align="center"><img src="https://64.media.tumblr.com/1d642ee1380335146fc4768f941b6852/76a41a0dc2177ee1-6d/s250x400/f8b0bbb26fc913ed9d2ec57b50bc5abb782b455f.gifv" width="150" height="100">
 <p align="center"width="80" height="100"><img src="https://64.media.tumblr.com/64ef4709c464033aacc137bc5e60f5b2/60145da17c6a1425-70/s2048x3072/6a7f6f4b6126baa046c4b72d096dff22eaaa944d.pnj">
 
+ <p align="center"> ART FIGHT 2025 HITLIST HERE! -> https://forms.gle/9xgsBGAgLfbUeB3J7
 
 <p align="center"> Hi!! :-) My name's Jammer! <img src="https://64.media.tumblr.com/02043487576c667fcfcce45c08ab5ffb/95a38f33f8550838-0a/s75x75_c1/49924b4afedea3bcb986e1cb1aa77d0906b76cba.gifv"> She/he/they <img src="https://64.media.tumblr.com/1001e5f8f39b0887c9fbba8fc7f16273/95a38f33f8550838-eb/s75x75_c1/3bae741da53000a06e38aad2967d4f1d4e7fd014.gifv"> I'm 19!! Please DNI if you're under 18!
 <p align="center"> Taken by my better half @sulkingskullz !! :-) <img src="https://64.media.tumblr.com/5d6e5db1972d10fb7d4707c72ead9dd0/e5e999bb453b6265-1e/s100x200/a36e9490870cc4b6107214ab83a822d376f4ef83.gifv" width="70" height="50"> 7 years strong with this idiot (Nobody cares!!)
